@@ -50,7 +50,7 @@
 
 
 
-
+ ##  [ПОСЛЕ ОПЛАТЫ НАПИСАТЬ МНЕ В TELEGRAM](https://t.me/fradyrad)
 
 
 
