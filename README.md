@@ -17,7 +17,8 @@
 - [Рутуб канал](https://rutube.ru/channel/23699504/)
 - [Магазин на KWORK](https://kwork.ru/user/sleadgenrator)
 - [Телеграм канал SOFT на PYTHON](https://t.me/python_softs)
-![Alt text](https://imgfy.ru/ib/ANgG11RLze5I6bg_1769889860.png)
+
+![Alt text](https://farkopplus.ru/image/catalog/pay-card.png)
 ##  2204 1201 3591 2596  (карта Мир)
 ##  +79209220591  СПБ (Банк Юмани)
 ## 5599 0020 6778 5123 (карта Маестро)
