@@ -5,6 +5,8 @@
 ##  - Мои ресурсы,группы,сайты и прочая инфа....
 ![Alt text](https://tgtron.ru/blog/wp-content/uploads/2025/11/image-68.png)
 
+![Alt text](https://imgfy.ru/ib/eHmOb2trXAvrlUA_1769891646.jpg)
+
 - [Донат на развитие](https://dzen.ru/privatsoft?donate=true)
 - [Магазин программного обеспечения 2025](https://t.me/softnull2022)
 - [КУПИТЬ DATACOL ВСЕ ВЕРСИИ -КВОРК ](https://kwork.ru/user/wmgn)
