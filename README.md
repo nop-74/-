@@ -15,7 +15,7 @@
 - [Рутуб канал](https://rutube.ru/channel/23699504/)
 - [Магазин на KWORK](https://kwork.ru/user/sleadgenrator)
 - [Телеграм канал SOFT на PYTHON](https://t.me/python_softs)
-![Alt text](https://cdn-irec.r-99.com/sites/default/files/imagecache/copyright/user-images/2517890/6dWzUE3niyIZpssgzHWQ.jpg)
+![Alt text](https://imgfy.ru/ib/ANgG11RLze5I6bg_1769889860.png)
 ##  2204 1201 3591 2596  (карта Мир)
 ##  +79209220591  СПБ (Банк Юмани)
 ## 5599 0020 6778 5123 (карта Маестро)
@@ -28,3 +28,40 @@
 
 ## Оплата  на 500 рублей
 ![Alt text](https://imgfy.ru/ib/SK64H077CQyG8Tk_1769889369.png)
+
+## Оплата  на 1000 рублей
+
+![Alt text](https://imgfy.ru/ib/NoEK7YWUopK1IZO_1769890012.png)
+
+## Оплата  на 1200 рублей
+![Alt text](https://imgfy.ru/ib/lnAgID8hCpxLbyc_1769890097.png)
+
+## Оплата  на 1500 рублей
+![Alt text](https://imgfy.ru/ib/pOrGHG1DE30Uw2i_1769890178.png)
+
+## Оплата  на 2000 рублей
+![Alt text](https://imgfy.ru/ib/rRCyPfzb6Y1Wni9_1769890304.png)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
