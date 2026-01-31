@@ -7,6 +7,8 @@
 
 - [Донат на развитие](https://dzen.ru/privatsoft?donate=true)
 - [Магазин программного обеспечения 2025](https://t.me/softnull2022)
+- [КУПИТЬ DATACOL ВСЕ ВЕРСИИ -КВОРК ](https://kwork.ru/user/wmgn)
+- [КУПИТЬ DATACOL ВСЕ ВЕРСИИ -TELEGRAM](https://t.me/Datacol7509)
 - [Оплатить](https://t.me/oplata_usl)
 - [Заказать программу(написание)](https://t.me/fradyrad)
 - [канал на Дзен](https://dzen.ru/privatsoft)
